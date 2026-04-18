@@ -2,7 +2,7 @@
 
 
 💻 Desenvolvedor de Software Web  
-📍 Colina – São Paulo, Brasil
+📍 São Paulo, Brasil
 
 
 ## 🚀 Sobre mim
